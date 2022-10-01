@@ -5,4 +5,4 @@
 - я люблю собак
 - я живу в Санкт-Петербурге
 
-![вот мое фото](https://photos.google.com/photo/AF1QipN9iNdrnWHoc3xTuhy5-GweQhMSlUcA1U0GkDwK)
+![вот мое фото](https://s2.stc.all.kpcdn.net/best/murmansk/piter/images/tild6639-6634-4164-b139-316230373735__s1200_1.jpg)
